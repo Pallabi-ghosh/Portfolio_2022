@@ -1,4 +1,4 @@
-Thanks for seeing my portfolio! 
+Thanks for viewing my creation! 
 
 Portfolio Name: Pallabi's Portfolio
 Portfolio URL: http://www.pallabighoshdas.info/
